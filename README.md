@@ -7,3 +7,13 @@ https://jnorth3393.wixsite.com/ideasync
 https://github.com/Jellsberry147
 
 I really appreciate you visiting this and my other pages and would love the chance to chat with you! Feel free to contact me on LinkedIn, Wix, or using any of my info from my resume.
+
+
+  ,-~~-.___.
+ / |  '     \         It was a dark and stormy night....
+(  )         0              
+ \_/-, ,----'            
+    ====           //                     
+   /  \-'~;    /~~~(O)
+  /  __/~|   /       |     
+=(  _____| (_________|   W<
